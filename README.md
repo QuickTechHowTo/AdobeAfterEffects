@@ -1,1 +1,7 @@
 # AdobeAfterEffects
+Adobe After Effects Cracked 
+Get Latest Version From Releases
+
+⚠️ ⚠️ IF IT GIVES AN ERROR TRY RUNNING WITHOUT ANTIVIRUS AND/OR RUN AS ADMIN ⚠️ ⚠️
+
+⚠️ ⚠️ IF IT DOES NOT EXTRACT DELETE THE RAR FILE AND RESTORE IT FROM BIN THEN EXTRACT ⚠️ ⚠️
